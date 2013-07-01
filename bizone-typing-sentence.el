@@ -1,0 +1,6 @@
+"There is no one who loves pain itself, who seeks after it and wants to have it, simply because it is pain....1"
+"There is no one who loves pain itself, who seeks after it and wants to have it, simply because it is pain....2"
+"There is no one who loves pain itself, who seeks after it and wants to have it, simply because it is pain....3"
+"There is no one who loves pain itself, who seeks after it and wants to have it, simply because it is pain....4"
+"There is no one who loves pain itself, who seeks after it and wants to have it, simply because it is pain....5"
+"There is no one who loves pain itself, who seeks after it and wants to have it, simply because it is pain....6"
